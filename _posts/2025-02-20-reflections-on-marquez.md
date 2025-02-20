@@ -1,5 +1,5 @@
 ---
-title: "Short reflections on Marquez"
+title: "Short reflections on Márquez"
 date: 2025-02-20
 ---
 
