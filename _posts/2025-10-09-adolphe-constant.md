@@ -3,7 +3,8 @@ title: "Adolphe by Henri-Benjamin Constant de Rebeque"
 date: 2025-10-09
 ---
 
-Adolphe – The novel by Henri-Benjamin Constant de Rebecque
+Adolphe – The novel by Henri-Benjamin Constant de Rebecque.
+
 The idea for the novel arose in Constant in the fall of 1806. In September, he arrived in Rouen, where his beloved Madame de Staël was staying (their relationship had already lasted twelve years). In 1802, she had been exiled from Paris by Napoleon’s order. Constant intended to continue working on a large essay on political topics in Rouen, but he suddenly received a letter from Paris from an old friend, Charlotte Duterte (née von Hardenberg). Having met Charlotte in the capital, he was first flattered by her attention and then captivated by her charm—and most importantly, her meekness. In this respect, she was the complete opposite of the domineering Germaine de Staël.
 After spending about two weeks in Paris, he returned to Madame de Staël, who was grieving his absence. The need to hide his new feelings made his position near his former lover even more burdensome, and the lack of peace of mind prevented him from working on serious political compositions. So Constant turned to art. On October 30, 1806, as noted in his diary, he began writing a novel. At first, he intended to tell the story of his love for Charlotte, but already in November, alongside the mention of the “novel” in his diary, the “episode with Ellenora” begins to appear. Gradually, this “episode” took over his attention, and Constant, having postponed the initial idea, focused solely on it. As a result, by mid-November, the first sketch of what would become Adolphe was ready, and by early January 1807, the work (now called a novel) was completely finished.
 
