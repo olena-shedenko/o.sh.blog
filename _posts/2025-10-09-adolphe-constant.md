@@ -1,6 +1,6 @@
 
 ---
-title: "Adolphe" by Henri-Benjamin Constant de Rebeque
+title: "Adolphe by Henri-Benjamin Constant de Rebeque"
 date: 2025-10-09
 ---
 
