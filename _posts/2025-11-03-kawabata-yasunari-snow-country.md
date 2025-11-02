@@ -1,6 +1,6 @@
 ---
 title: "Kawabata's lyrical prose"
-date: 2025-11-03
+date: 2025-11-02
 ---
 
 ![Seven Women Applying Make-up Using a Mirror" by Utamaro published by Uchida art](https://store.kyotohandicraftcenter.com/cdn/shop/files/23121_13.jpg)
