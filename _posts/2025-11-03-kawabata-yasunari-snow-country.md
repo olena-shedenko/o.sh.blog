@@ -2,6 +2,7 @@
 title: "Kawabata's lyrical prose"
 date: 2025-11-03
 ---
+
 ![Seven Women Applying Make-up Using a Mirror" by Utamaro published by Uchida art](https://store.kyotohandicraftcenter.com/cdn/shop/files/23121_13.jpg)
 
 Snow Country (“Yukiguni”) is a tale by Yasunari Kawabata. The work was begun in 1934 and completed in 1947. It was published in parts starting in 1935 across various magazines. An unfinished version was first published in 1937 under the title Snow Country by Sagensha in Tokyo.
